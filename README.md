@@ -4,10 +4,11 @@
 
 ## Just a short introduction
 
-- I'm a 16y/o boy who just likes to code for himself
+- I'm a 16y/o boy who just likes to code for myself
 - Still learning alot on coding & i can't wait to code something that i wanted to!
+- I also watch Vtubers as well on my free time
 
-## Socials
+### Socials
 
 Discord Server: [SilvrPS](https://discord.gg/vnC4Z5nKm3)
 Youtube: [silverra](https://www.youtube.com/c/silverra/videos)
