@@ -4,7 +4,7 @@
 
 ## Just a short introduction
 
-- I'm a 16y/o boy who just likes to code for myself
+- 16y/o boy who just likes to code for himself
 - Still learning alot on coding & i can't wait to code something that i wanted to!
 - I also watch Vtubers as well on my free time
 
