@@ -4,9 +4,9 @@
 
 ## Just a short introduction
 
-- 16y/o boy who just likes to code for himself
-- Still learning alot on coding & i can't wait to code something that i wanted to!
-- I also watch Vtubers as well on my free time
+- 19
+- Still learning alot on coding & i can't wait to code something that i wanted to
+- I also watch VTubers as well on my free time.
 
 ### Socials
 
