@@ -4,7 +4,7 @@
 
 ## Just a short introduction
 
-- 19
+- 20
 - Still learning alot on coding & i can't wait to code something that i wanted to
 - I also watch VTubers as well on my free time.
 
